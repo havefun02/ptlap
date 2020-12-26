@@ -1,3 +1,2 @@
 # ptlap
-goodboy 
-hi guys, i am really interesting in exploring my little world and it was u....
+My name is PTL
